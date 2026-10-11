@@ -8,7 +8,6 @@ Aooh
 Doraemon aushdaushduahuwdh 
 
 ## favorite activity
-basketball
-
+football
 ## Our favorite foods
 kaprao moo sab
